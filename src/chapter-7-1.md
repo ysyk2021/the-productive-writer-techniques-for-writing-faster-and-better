@@ -1,4 +1,4 @@
-Leveraging Technology and Tools for Writing - The Role of Technology and Tools in Productive Writing
+The Role of Technology and Tools in Productive Writing
 ===============================================================================================================
 
 In today's digital age, technology plays an increasingly important role in the writing process. From word processing software to online research tools, writers have access to a wide range of tools and resources that can help them work more efficiently and effectively. In this chapter, we will explore the role of technology and tools in productive writing.

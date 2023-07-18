@@ -1,4 +1,4 @@
-Overcoming Writer's Block and Procrastination - Strategies for Overcoming Writer's Block and Procrastination
+Strategies for Overcoming Writer's Block and Procrastination
 =======================================================================================================================
 
 In this chapter of "The Productive Writer," we will explore effective strategies for overcoming writer's block and procrastination, two common obstacles that can hinder the writing process.

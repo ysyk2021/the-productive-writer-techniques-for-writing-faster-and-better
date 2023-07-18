@@ -1,4 +1,4 @@
-Leveraging Technology and Tools for Writing - Techniques for Using Technology to Support Your Writing Process
+Techniques for Using Technology to Support Your Writing Process
 ========================================================================================================================
 
 In this chapter of "The Productive Writer," we will explore the various ways technology can be leveraged to support your writing process, including techniques for using software tools to improve efficiency, organization, and creativity.
