@@ -39,5 +39,3 @@ Setting realistic goals and deadlines is essential for effective time management
 Taking care of your mental and physical well-being is crucial for optimal productivity. Engage in activities like meditation, exercise, or hobbies that help clear your mind and reduce stress. When you prioritize self-care, you become more focused, energized, and better equipped to manage your time effectively.
 
 By implementing these techniques, you can enhance your ability to manage time efficiently, minimize distractions, and achieve higher levels of productivity as a writer. Remember, everyone has their own unique workflow, so feel free to adapt and modify these strategies to suit your personal preferences and working style.
-
-Happy writing!
