@@ -1,5 +1,3 @@
-Overview of the Benefits of Developing a Productive Writing Mindset
-============================================================================
 
 In today's fast-paced world, developing a productive writing mindset is crucial for writers seeking success. This chapter provides an overview of the numerous benefits that come with cultivating such a mindset. By understanding these advantages, writers can harness their potential and enhance their writing speed and quality.
 

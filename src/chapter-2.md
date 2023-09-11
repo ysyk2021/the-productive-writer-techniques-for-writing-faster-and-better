@@ -1,5 +1,3 @@
-Chapter 1: Understanding Your Writing Process
-=============================================
 
 Understanding your writing process is essential to becoming a productive writer. By identifying your strengths and weaknesses as a writer, optimizing your process for productivity, and setting realistic goals, you can improve your writing skills and achieve greater success. In this chapter, we will discuss techniques for understanding your writing process.
 

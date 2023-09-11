@@ -1,5 +1,3 @@
-Chapter 2: Overcoming Writer's Block and Procrastination
-========================================================
 
 Writer's block and procrastination are two major challenges that writers face. These obstacles can prevent you from achieving your writing goals and making progress on your projects. In this chapter, we will explore the challenges of writer's block and procrastination in writing, strategies for overcoming these obstacles, and tips for building a writing habit and staying motivated.
 

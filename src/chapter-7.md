@@ -1,5 +1,3 @@
-Chapter 6: Leveraging Technology and Tools for Writing
-======================================================
 
 Technology and tools can be powerful allies for productive writing. In this chapter, we will explore the role of technology and tools in productive writing, techniques for using technology to support your writing process, and examples of useful tools and resources for writers.
 

@@ -1,5 +1,3 @@
-Introduction
-============
 
 Writing is an essential skill that plays a crucial role in personal and professional success. However, the writing process can be challenging and often leads to writer's block, procrastination, and low productivity. In this book, we will explore techniques and strategies for developing a productive writing mindset that can help you overcome these obstacles and become a better writer.
 

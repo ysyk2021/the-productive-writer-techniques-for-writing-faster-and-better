@@ -1,5 +1,3 @@
-Tips for Leveraging Your Support System to Stay Accountable and Motivated
-==================================================================================
 
 Writing can sometimes be a solitary endeavor, but that doesn't mean you have to go it alone. Building a strong support system can play a crucial role in helping you stay accountable and motivated on your writing journey. In this chapter, we will explore various tips and strategies for leveraging your support system to enhance your productivity and improve your writing skills.
 

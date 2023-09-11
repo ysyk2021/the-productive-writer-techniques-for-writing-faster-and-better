@@ -1,5 +1,3 @@
-Tips for Staying Organized and Focused on Your Writing Goals
-============================================================================================================
 
 Planning and outlining your writing is an essential step in staying organized and focused on your writing goals. By taking the time to plan and outline your work, you can:
 

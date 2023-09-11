@@ -1,5 +1,3 @@
-Chapter 7: Building a Support System for Writing
-================================================
 
 Writing can be a solitary and challenging activity, but building a supportive network can make all the difference in staying motivated, accountable, and productive. In this chapter, we will explore the importance of building a support system for productive writing and provide techniques for finding and connecting with other writers and supporters. We will also share tips for leveraging your support system to stay accountable and motivated.
 

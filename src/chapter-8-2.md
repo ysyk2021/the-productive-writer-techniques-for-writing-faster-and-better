@@ -1,5 +1,3 @@
-Techniques for Finding and Connecting with Other Writers and Supporters
-================================================================================
 
 Being a writer can sometimes be a solitary endeavor, but that doesn't mean you have to go it alone. In fact, connecting with other writers and building a supportive network can be incredibly beneficial for your writing journey. This chapter will explore techniques for finding and connecting with fellow writers and supporters who can enhance your productivity, provide valuable feedback, and offer encouragement along the way.
 

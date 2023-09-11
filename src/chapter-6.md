@@ -1,5 +1,3 @@
-Chapter 5: Managing Your Time and Distractions
-==============================================
 
 Managing your time effectively and minimizing distractions is crucial for productive writing. In this chapter, we will explore the role of time management and minimizing distractions in productive writing, techniques for managing your time effectively and avoiding common distractions, and tips for creating a distraction-free writing environment.
 

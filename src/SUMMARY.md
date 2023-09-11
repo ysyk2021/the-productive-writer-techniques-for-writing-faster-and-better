@@ -34,3 +34,4 @@
   - [Tips for leveraging your support system to stay accountable and motivated](chapter-8-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

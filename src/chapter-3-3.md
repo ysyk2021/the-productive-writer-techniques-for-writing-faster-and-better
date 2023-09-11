@@ -1,5 +1,3 @@
-Tips for Building a Writing Habit and Staying Motivated
-==================================================================
 
 Writing is not just an art; it's a skill that requires practice and consistency. In this chapter, we will explore practical tips to help you build a writing habit and stay motivated throughout your writing journey. By incorporating these techniques into your routine, you can enhance your productivity and achieve your writing goals.
 

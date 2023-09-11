@@ -1,5 +1,3 @@
-Chapter 3: Planning and Outlining Your Writing
-==============================================
 
 Planning and outlining your writing is a crucial step in productive writing. By taking the time to develop an effective outline and plan for your work, you can clarify your ideas, stay organized, and save time in the long run. In this chapter, we will explore the role of planning and outlining in productive writing, techniques for developing effective outlines and plans, and tips for staying organized and focused on your writing goals.
 
